@@ -1,1 +1,1 @@
-[![Discord](https://lanyard.cnrad.dev/api/1087035731597328404)](https://igna.zip/discord)
+[![#8841fb](https://singlecolorimage.com/get/8841fb/1920x1080)](https://www.colorhexa.com/8841fb)
